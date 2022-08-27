@@ -60,6 +60,6 @@
 
 ###### 🏹 Archery
 
-###### 📺 Serie fav: Sillicon Valley :fa-pied-piper:
+###### 📺 Serie fav: Sillicon Valley
 
 ###### 📽 Movie fav: The social network
