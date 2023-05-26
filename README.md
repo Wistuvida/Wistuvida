@@ -52,8 +52,6 @@
 
 ###### Instagram: wistuvida_ 
 
-###### Facebook: Bryan Alberto A. Riveros
-
 ------------
 
 ### Hobbies
