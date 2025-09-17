@@ -50,13 +50,13 @@
 
 ### Social
 
-###### Instagram: wistuvida_ 
+###### Instagram: im_wistuvida 
 
 ------------
 
 ### Hobbies
 
-###### 🏹 Archery
+###### 🎾 Tennis
 
 ###### 📺 Serie fav: Sillicon Valley
 
